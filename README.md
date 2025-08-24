@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Momin Ali
 
-🎓 BS Business Analytics (Semester 3) | 📊 Data Enthusiast | 🌍 Aspiring Entrepreneur  
+🎓 BS Business Analytics (Semester 5) | 📊 Data Enthusiast | 🌍 Aspiring Entrepreneur  
 
 🔹 Vice President @ IBTIDA – Student-led initiative for free education  
 🔹 UGRAD 2025 Qualifier | Community Builder | Scholarship Achiever  
